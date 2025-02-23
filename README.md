@@ -1,1 +1,0 @@
-# T-ng-h-p-by-nah
